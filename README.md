@@ -3,12 +3,11 @@
 - 🌱 I’m currently learning how to make you cum alot
 - 💞️ I’m looking to collaborate on fwb
 - 📫 How to reach me, here is my socials
-- Instagram : abbysostupid
+- Instagram : elyse.lies 
 - telegram : ElyseNude
-- Facebook/Messeger Abby Leyav
+- Facebook/Messeger Abby Leyva
 - Discord : hevabbby
-- SnapChat : Elysekiffay
-- Roblox : ElyseKiffay
+- Roblox : Shyfix2
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I always get horny LOL, open for dms
 
